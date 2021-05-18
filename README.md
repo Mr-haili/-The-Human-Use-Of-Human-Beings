@@ -7,3 +7,5 @@
 行有不得，反求诸己
 
 We are not stuff that abides, but patterns that perpetuate themselves
+
+我并非僵死之物，我是我自身的模式，我亦是我自身模式的延续。
